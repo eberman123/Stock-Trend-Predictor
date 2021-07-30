@@ -1,1 +1,0 @@
-Refer to Instruction Manual and Project Summary.
